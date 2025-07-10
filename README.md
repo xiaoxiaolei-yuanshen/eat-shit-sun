@@ -10,7 +10,7 @@
 
 
 赤石材质1.0：
-https://www.bilibili.com/video/BV1MNGTzjEjE/
+https://www.bilibili.com/video/BV1FS3LzsEmo/
 
 
 
