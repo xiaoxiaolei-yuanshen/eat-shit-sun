@@ -21,3 +21,7 @@ https://www.bilibili.com/video/BV1pj3dzuE3M/
 
 赤石材质3.0：
 https://www.bilibili.com/video/BV1MNGTzjEjE/
+
+
+![8f2a50409243c36ed01c5d8313958b701016193485](https://github.com/user-attachments/assets/9f484525-6cbf-458f-b8fe-236b3df2747a)
+
